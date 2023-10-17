@@ -1,0 +1,1 @@
+The reason firehouses have circular stairways is from the days of yorewhen the engines were pulled by horses. The horses were stabled on theground floor and figured out how to walk up straight staircases.
