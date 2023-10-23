@@ -1,0 +1,1 @@
+Shakespeare invented the word "assassination" and "bump."
