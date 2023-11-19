@@ -1,0 +1,1 @@
+Consuming chocolate was once considered a sin during the 16th and 17th century. During that time it was provided in the form of a drink and since drinking wine during lent was a sin, so was drinking chocolate
