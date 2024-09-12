@@ -1,0 +1,1 @@
+The postage rate for a letter in 1693 was determined through how much light could pass through the letter. The postage rate would be more expensive if less light went through, and this process was called candling
